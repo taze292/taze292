@@ -1,8 +1,8 @@
-Discord: @taze29  
-My only alt account is @fakekingtaze  
-https://v3rm.net/members/king-taze-spl.97636/  
-  
-Luau - 8 years  
-Learning C++, JS/TS, UI Design (for 3 months, getting pretty good)  
-  
-Feel free to add me on discord for any questions relating to Luau, I rarely refuse to help people.
+My only discord accounts are:
+@taze29 (1508092345776869450)
+@fakekingtaze (1197133597350563904)
+
+If you're ever doing a deal with me please verify that you're speaking to me.
+I (currently) do not sell any services, do not fall for scams.
+
+Learning UI design & C++, proficient in Luau
